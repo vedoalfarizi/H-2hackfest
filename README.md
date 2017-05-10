@@ -2,4 +2,4 @@
 
 Cuma coba saja.
 
-okepak
+dan akhirnyan berhasil
